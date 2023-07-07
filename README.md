@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @NIRANJANADEVI-M
+- 👋 
 - 
